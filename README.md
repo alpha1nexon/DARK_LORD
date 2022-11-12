@@ -1,0 +1,2 @@
+# DARK_LORD
+ALWAYS BE A  LEADER 😌🚩
